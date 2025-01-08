@@ -1,4 +1,4 @@
-## Hi there 👋 Im vasanthakumar
+## Hi there 👋 Im Vasanthakumar S
 
 Engineering Student
 
